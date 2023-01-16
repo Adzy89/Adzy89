@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Adzy89
 - 👀 I’m interested in development, games and crypto
 - 🌱 I’m currently learning full stack web development
-- 💞️ I’m looking to collaborate on nothing at the moment
+- 💞️ I’m looking to collaborate on anything right now, i like learning :)
 - 📫 How to reach me Twiiter handle @adzyau
 
 <!---
