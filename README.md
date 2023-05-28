@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Adzy89<br>👀 I’m interested in development, games and crypto<br>🌱 I’m currently learning full stack web development<br>💞️ I’m looking to collaborate on anything right now, i like learning :)<br>📫 How to reach me Twitter handle @adzyau
+👋 Hi, I’m @Adzy89<br>👀 I’m interested in development, games and crypto anything really<br>🌱(Post-Grad) Junior full stack web development<br>💞️ I’m looking to collaborate on anything right now, i like learning :)<br>📫 How to reach me Twitter handle @adzyau
 
 
 ## 🌐 Socials:
